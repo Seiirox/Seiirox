@@ -1,0 +1,5 @@
+- Hi, I’m @Seiirox.
+- I’m interested in development.
+- I’m currently learning many language like Java and C++.
+- I’m Python developer.
+- Discord for DM : Seiirox#0001.
